@@ -1,21 +1,12 @@
-        Ingredients Needed
-Vegetable oil for the pans
-2 1/2 cups all-purpose flour
-1 1/2 cups sugar
-1 teaspoon baking soda
-1 teaspoon fine salt
-1 teaspoon cocoa powder
-1 1/2 cups vegetable oil
-1 cup buttermilk, at room temperature
-2 large eggs, at room temperature
-2 tablespoons red food coloring (1 ounce)
-1 teaspoon white distilled vinegar
-1 teaspoon vanilla extract
-Cream Cheese Frosting, recipe follows
-Crushed pecans, for garnish
+Ingredients:
+Crust:
+1 1/2 cups (128g) graham cracker crumbs (9 to 10 whole graham crackers), crushed)
+1/4 cup (28g) confectioners' sugar
+5 1/3 tablespoons (74g) butter, melted
+1/8 teaspoon salt
 
-    Cream Cheese Frosting:
-1 pound cream cheese, softened
-4 cups sifted confectioners' sugar
-2 sticks unsalted butter (1 cup), softened
+Filling:
+two 8-ounce packages (452g) cream cheese, at room temperature
+2 large eggs, at room temperature
+2/3 cup (152g) granulated sugar
 1 teaspoon vanilla extract
